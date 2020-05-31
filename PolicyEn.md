@@ -19,4 +19,6 @@ If the customer wishes to inquire, correct or delete the personal information of
 
 ・ Inquiries For inquiries regarding our handling of personal information, please contact the following.
 
+Email:xx3322@daum.net
+
 May 31, 2020 JUHO CHE
